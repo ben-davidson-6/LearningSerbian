@@ -2,13 +2,14 @@
 
 1. Ivana se mala prevatila od doktora. Već tri dana ima veliki grip. Nije joj doboro ima temparaturu boli je galava i curi joj nos. Oseća se jako joše. Njene mama je ljuta zato što Ivana ne vodi dovoljno računa o zdravu. Ivana nije rekla majcu da je autostopom dolazio u Beograd. Majka je zabrinuto pitala.
 
-1. Mama pa doboro gde si se tako prehladila
-Ivana nije tepko prehladiti se kad odjednom ovako zahladni i jad kiša ne prestaje padati već nekoliko dana.
-Nije istina problem je što se ti oblačiš prevuše lagano. Nosiš samo te tanke majice a već je vreme za toplu jaknu.
-znaš da ne volim nositi pubo odeće. uvek mi je vruće u autobusu. 
-jako si tvrdoglava. mnogo je bolje sprečiti nego lečiti
-ma videćeš piću čajeve puno vitamina c i sutra ću biti kao nov
-ja baš brinem alit ti si već zrela i odrasla dvojka
+1. 
+    - Mama pa doboro gde si se tako prehladila
+    - Ivana nije tepko prehladiti se kad odjednom ovako zahladni i jad kiša ne prestaje padati već nekoliko dana.
+    - Nije istina problem je što se ti oblačiš prevuše lagano. Nosiš samo te tanke majice a već je vreme za toplu jaknu.
+    - znaš da ne volim nositi pubo odeće. uvek mi je vruće u autobusu. 
+    - jako si tvrdoglava. mnogo je bolje sprečiti nego lečiti
+    - ma videćeš piću čajeve puno vitamina c i sutra ću biti kao nov
+    - ja baš brinem alit ti si već zrela i odrasla dvojka
 
 1. 
     1. ima temperaturu, boli je glava, i curi joj nos
