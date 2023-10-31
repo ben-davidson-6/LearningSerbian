@@ -23,7 +23,7 @@ Prošli put kad sam dobio grip nije mi bilo strašno. dobio sam koronu i Mašin 
     1. Mislim da mirko ima temperaturu. Nije mu doboro
     1. oni će dobiti novi bolji posao. Nama je drago
     izgledaš loše. šta ti je.
-1. 
+1. t
     1. Da li vam se sviđa dubrovnik. da sviđa mi se puno
     1. da li joj se dopada njihova nova kuća. ne dopada joj se-
     1. ne sviđa im se vaš novi auto
