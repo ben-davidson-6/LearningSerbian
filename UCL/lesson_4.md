@@ -43,7 +43,7 @@
     1. Nije uvek tačan, ali ćesto može da bude tačan. U britaniji na primer, možeš da kažeš mnogi o ljudima samo od akcenata. od prve rečenice ti bi znao odakli su u britaniji, da li su bogati ili siromašni. Očigledno ima ljude koji su nisu takvi kao što misliš, ali najčesće jesu.
     1. Mislim kad prvi put se upoznam ljudi primečujem kako se ponašaju. Da li se smeju, da li se osmehuju i važan je meni da slušaju druge ljude. Moram da budem iskreno da primečujem kako se obuće. Ako brine previše što nose onda znam da imamo drugaciji pogled na svet
 1. 
-    1. 
+    1. On je visok i star. Malo je debeo, ima plavu kosu i pocrneo je ali je lažno lažno. Njegov karakter može da bude jedan od najpoznatih na svetu. Ja mislim da on je lud, i može da bude baš smješno. sebičan je i nikog ne sluša osim sebe. njegov najbolje talenat je da da ljudima napredci, na primer pokahontas, ili sleepy joe.
 
 
 
