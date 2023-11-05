@@ -1,6 +1,6 @@
 # Lesson 3
 
-1. Ivana se mala prevatila od doktora. Već tri dana ima veliki grip. Nije joj doboro ima temparaturu boli je galava i curi joj nos. Oseća se jako joše. Njene mama je ljuta zato što Ivana ne vodi dovoljno računa o zdravu. Ivana nije rekla majcu da je autostopom dolazio u Beograd. Majka je zabrinuto pitala.
+1. Ivana se mala prevatila od doktora. Već tri dana ima jak grip. Nije joj doboro ima temparaturu boli je galava i curi joj nos. Oseća se jako joše. Njene mama je ljuta zato što Ivana ne vodi dovoljno računa o zdravlju. Ivana nije rekla majcu da je autostopom stigla u Beograd. Majka je zabrinuto upitala.
 
 1. 
     - Mama pa doboro gde si se tako prehladila
@@ -10,7 +10,6 @@
     - jako si tvrdoglava. mnogo je bolje sprečiti nego lečiti
     - ma videćeš piću čajeve puno vitamina c i sutra ću biti kao nov
     - ja baš brinem alit ti si već zrela i odrasla dvojka
-
 1. 
     1. ima temperaturu, boli je glava, i curi joj nos
     1. Ona misli da ima grip zbog vreme je bila katastrofa
