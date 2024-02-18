@@ -15,10 +15,10 @@ ugasim svetla u sobama dok ne boravim, ali ne radim sve ostalo na listi. Prije k
     2. Cilj ekologa je zaštita prirode.
     3. Šta bi svako od nas mogao da uradi da zaštitimo životnu sredinu?
 1.
-    1. migranti su trenutno jako blizu hrvatske granice. neki ljudi se boje migranata. ne veruju ih zato što oni žele uć u hrvatskoj bez dokumenta.
+    1. migranti su trenutno jako blizu hrvatske granice. neki ljudi se boje migranata. ne veruju ih zato što oni žele ući u hrvatskoj bez dokumenata.
     1. u julu sledeća godina aleks će početi da radi u britanskoj ambdasadi u srbiji.
     1. pre 3 godine helen se preslila iz londona u beograd.
     1. prošla godina bila sam na odomoru u republikoj irskoj. ova godina idem na hrvatsku ostrvu. misilm da ću ići na ostrvo krk u mestu koje se zove šilo. šilo se nalazi nasuprot crikvenici.
-    1. prema mom mišljenju život u beogradu je jako lep. Beograd ima sve što jedan grad treba da ima, ima parkove, mnogo muzeja i nekoliko izvrstanih restorana
+    1. Prema mom mišljenju, život u Beogradu je jako lep. Beograd ima sve što jedan grad treba da ima - parkove, mnogo muzeja i nekoliko izvrsnih restorana.
     1. svaki dan pikem 4 šolje kafe. neki ljudi kažu da je to previše ali ja ne mogu da živim bez nju. jako je volim. posebno mi se sviđa turska kafa.
     1. nikada nismo bili na plitvičkoj jezeri. plitvička jezera su nacionalini park koji ima bogate flore i faune
